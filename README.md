@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Elizabeth, but most call me Ely!
-- 👀 I’m interested in UX design, UX research, and understanding what's under the hood of apps and websites!
+- 👀 I’m interested in UX design, UX research, and understanding what's under the hood of apps and websites:)
 - 💞️ In my free time I read, mess around with photoshop, skate, and play games with pals
 - 📫 How to reach me : fon318@protonmail.com
 
